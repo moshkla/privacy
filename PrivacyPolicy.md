@@ -37,4 +37,4 @@ We may update this Privacy Policy from time to time in order to reflect, for exa
 ## Contact Us
 If you have questions or comments about this Privacy Policy, please contact us at:
 
-Email: support@example.com
+Email: anasabdelazim602@gmail.com
